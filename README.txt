@@ -1,0 +1,1 @@
+I am Abba Shadrach O, I'm so excited to be in this internship programme, I looking forward to learning new things and working with others.
